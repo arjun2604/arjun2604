@@ -1,4 +1,4 @@
-Arjun Aarya## Hi there 👋
+Arjun Aarya from MPSTME NMIMS Shirpur doing MBA TECH CE  ## Hi there 👋
 
 <!--
 **arjun2604/arjun2604** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
